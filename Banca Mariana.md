@@ -25,5 +25,11 @@
 
 ![](Franca.png)
 
+* Articular o projeto com os bairros do entorno prevendo, de certa forma, alguma ligação mais direta. O parque acaba se fechando nas atividades internas e nao cria essa conexão. 
+* Como promover uma transição entre as casas que já ocupam pedaço daquela área com o parque? Estacionamento pode ser ruim.
+* Lagoa - E se a escala for diminuida, aumentando o número de lagoas. Assim diminuir a quebra e possibilita novas explorações de atividades e percursos.
+* Turenscape
+* Atividades: Esporte: Natação, Escalada, etc.
 
+![](Referencia1.jpg)
 
